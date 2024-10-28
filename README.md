@@ -1,0 +1,1 @@
+<img width="1312" alt="Снимок экрана 2024-10-28 в 17 45 43" src="https://github.com/user-attachments/assets/5713ed37-cf65-48b9-b682-37184bbceaab">
